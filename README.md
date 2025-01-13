@@ -1,5 +1,5 @@
 # merge-together
 
-Darren have a skill issue in valorant
+Darren hate Leo as his duo since Leo keep throwing his game.
 
-Derrick has trash grades
+Derrick need to go to bed.
